@@ -1,1 +1,4 @@
-# Repo121521 we are ending our firdt week of the bootcamp. WOW!
+# Repo121521 
+Hi, my name is Nabil De La Rosa, I'm a 29 years old businessman. I got in the furniture industry in 2010 with the help of my stepfather and in 2015 I opened my first furniture retail store. Currently My first Retail Store is still open, also Im importing Furniture to the U.S and also The Dominican Republic; I also own a Car rental business here in the U.S and also In the Dominican Republic.
+My career goals are to grow as a business man.
+I Choose Fintech Bootcamp because I trade Stock and Crytpocurrencies and I Thought this bootcamp could help me have improve my skills and tools to improve my trading, but now I would like to say that now that I have seen what this bootcamp is about, I see skills that would be very helpful in growing my current businesses and it also opens the door to new aportuinities in gereal. I'm super ecxited.
